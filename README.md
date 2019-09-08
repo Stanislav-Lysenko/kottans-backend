@@ -1,1 +1,1 @@
-Thanks for your study links.
+Thanks for your study links!!!
